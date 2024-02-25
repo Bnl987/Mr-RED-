@@ -7,4 +7,3 @@ i am also an open-source enthusiast and maintainer. i learned a lot from the ope
  💼 any freelance work? do reach, My email :) kuldeepdave561@gmail.com
  
  💬 ask me about anything, i am happy to help;
-https://raw.githubusercontent.com/vaimpierritik/vaimpierritik/main/code.gif
